@@ -1,0 +1,4 @@
+- I’m @TsikenOfficial
+- I’m interested in gaming and coding.
+- I’m currently learning C++, C# and Python.
+- Do not DM me because I will not answer.
